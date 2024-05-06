@@ -1,0 +1,1 @@
+# Confa_po_bezopastnosti
